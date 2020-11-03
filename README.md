@@ -1,3 +1,3 @@
 ### Hey hey!
 
-I'm happy to see you here
+I'm glad to see you here
